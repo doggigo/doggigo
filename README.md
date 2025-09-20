@@ -1,1 +1,1 @@
-## Im a Math and Computer Science Student
+## Math n compsci
